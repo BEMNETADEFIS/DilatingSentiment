@@ -4,7 +4,7 @@ https://dublin.sciencegallery.com/page/dilatingsentimentsocialsculpture
 
 
 ## Who
-
+Mick O’Hara and Conor McGarrigle
 
 ## Why
 
